@@ -1,0 +1,2 @@
+# namedays
+Latvia
